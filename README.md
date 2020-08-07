@@ -1,4 +1,4 @@
-### Hi there, I'm Suman - Jarvis [deysuman][facebook] 👋
+### Hi there, I'm Suman [(Jarvis)][facebook] 👋
 
 
 - 🔭 I’m currently working for Aliens ! 🤣
